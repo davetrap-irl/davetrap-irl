@@ -1,7 +1,7 @@
 
 ![4r](https://github.com/user-attachments/assets/a309491d-0ac8-416b-b52b-832fe33b0184)
 
-dni : trans/homo/queerphobes, racists, sexists, extremly sensitive people, dox/rade/swaters, zoo/pedo, fatphobes
+dni : trans/homo/queerphobes, fatphobes, racists, sexists, extremly sensitive people, dox/rade/swaters, zoo/pedo/necro
 
 !! i block and hide freely !!
 
