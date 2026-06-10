@@ -1,6 +1,10 @@
 
 ![4r](https://github.com/user-attachments/assets/a309491d-0ac8-416b-b52b-832fe33b0184)
 
+dni : trans/homo/queerphobes, racists, sexists, extremly sensitive people, dox/rade/swaters, zoo/pedo, fatphobes
+
+!! i block and hide freely !!
+
 haii hii
 
 oh um check my toyhouse (still updating) https://toyhou.se/wupbb
