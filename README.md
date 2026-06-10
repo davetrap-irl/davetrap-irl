@@ -3,23 +3,23 @@
 
 <p>$${\color{#c51d3d}dni : trans/homo/queerphobes, fatphobes, racists, sexists, extremly sensitive people, zoo/pedo/necro}$$</p>
 
-!! i block and hide freely !!
+<p>$$!! \ i \ block \ and \ hide \ freely \ !!$$</p>
 
-im really anxious smtms........ im so sorry
+<p>$$im \ really \ anxious \ smtms........ \ im \ so \ sorry$$</p>
 
-w2i freely! i dont bite <:3
+<p>$$w2i \ freely! \ i \ dont \ bite \ <:3$$</p>
 
-oh um check my toyhouse (still updating) https://toyhou.se/wupbb
+<p>$$oh \ um \ check \ my \ toyhouse \ for \ more \ OC's \ info \ (still \ updating)$$</p>
 
-rbrt
+<p>$$rbrt$$</p>
 
 ![Без названия494_20260605233638.png](https://github.com/user-attachments/assets/2aa730cd-ee5b-476c-a5c6-fbaf8fb8947b)
 
-c00t sillyfucks
+<p>$$c00t \ sillyfucks$$</p>
 
 ![Без названия494_20260605233525.png](https://github.com/user-attachments/assets/12a7fa68-da2c-4755-b25f-f769eea020cb)
 
-kenzeppe4life
+<p>$$kenzeppe4life$$</p>
 
 ![temporary kenzeppe art ok..](https://github.com/user-attachments/assets/b9b6febe-578e-4707-aed8-e4a4dc425adc)
 
