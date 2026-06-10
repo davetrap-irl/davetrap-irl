@@ -1,11 +1,13 @@
 
 ![4r](https://github.com/user-attachments/assets/a309491d-0ac8-416b-b52b-832fe33b0184)
 
-dni : trans/homo/queerphobes, fatphobes, racists, sexists, extremly sensitive people, dox/rade/swaters, zoo/pedo/necro
+dni : trans/homo/queerphobes, fatphobes, racists, sexists, extremly sensitive people, zoo/pedo/necro
 
 !! i block and hide freely !!
 
-haii hii
+im really anxious smtms........ im so sorry
+
+w2i freely! i dont bite <:3
 
 oh um check my toyhouse (still updating) https://toyhou.se/wupbb
 
