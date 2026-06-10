@@ -1,7 +1,7 @@
 
 ![4r](https://github.com/user-attachments/assets/a309491d-0ac8-416b-b52b-832fe33b0184)
 
-dni : trans/homo/queerphobes, fatphobes, racists, sexists, extremly sensitive people, zoo/pedo/necro
+<p>$${\color{#c51d3d}dni : trans/homo/queerphobes, fatphobes, racists, sexists, extremly sensitive people, zoo/pedo/necro}$$</p>
 
 !! i block and hide freely !!
 
