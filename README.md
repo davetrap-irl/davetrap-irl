@@ -7,7 +7,7 @@
 
 <p>$$im \ really \ anxious \ smtms........ \ im \ so \ sorry$$</p>
 
-<p>$$w2i \ freely! \ i \ dont \ bite \ <:3$$</p>
+<p>$$w2i! \ i \ dont \ bite \ <:3$$</p>
 
 <p>$$oh \ um \ check \ my \ toyhouse \ for \ more \ OC's \ info \ (still \ updating)$$</p>
 
