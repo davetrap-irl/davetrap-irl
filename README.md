@@ -12,10 +12,10 @@
 $$oh \ um \ check \ my \ toyhouse \ for \ more \ OC's \ info \ (still \ updating)$$</p>
 
 
-
 <p align="center">
 <a href="https://toyhou.se/wupbb">toyhouse</a><p>
 </p>
 
 <p>$$c00t \ sillyfucks$$</p>
+
 ![Без названия494_20260605233525.png](https://github.com/user-attachments/assets/12a7fa68-da2c-4755-b25f-f769eea020cb)
