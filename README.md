@@ -9,8 +9,10 @@
 
 <p>$$w2i! \ i \ dont \ bite \ <:3$$</p>
 
-<p>$$oh \ um \ check \ my \ toyhouse \ for \ more \ OC's \ info \ (still \ updating)$$</p>
+$$oh \ um \ check \ my \ toyhouse \ for \ more \ OC's \ info \ (still \ updating)$$</p>
 
 <p>$$c00t \ sillyfucks$$</p>
+
+<a href="[https://toyhou.se/wupbb]">toyhouse</a><p>
 
 ![Без названия494_20260605233525.png](https://github.com/user-attachments/assets/12a7fa68-da2c-4755-b25f-f769eea020cb)
