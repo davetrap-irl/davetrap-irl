@@ -1,7 +1,8 @@
 
 ![4r](https://github.com/user-attachments/assets/a309491d-0ac8-416b-b52b-832fe33b0184)
 
-<p>$${\color{#c51d3d}dni : transphobes, \ homophobes, \ queerphobes, fatphobes, racists, sexists, extremly \ sensitive \ people, zoo/pedo/necro, \ under \ 14yo, \ manipulative \ people, \ stalkers}$$</p>
+<p>$${\color{#c51d3d}dni : transphobes, \ homophobes, \ queerphobes, \ fatphobes, \ racists, \ sexists, \ extremly \ sensitive \ people}$$</p>
+<p>$${\color{#c51d3d}zoo/pedo/necro, \ under \ 14yo, \ manipulative \ people, \ stalkers}$$</p>
 
 <p>$$!! \ i \ block \ and \ hide \ freely \ !!$$</p>
 
